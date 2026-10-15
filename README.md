@@ -1,1 +1,1 @@
-# Pratice-
+# Pratice Daily
