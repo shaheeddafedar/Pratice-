@@ -1,1 +1,1 @@
-# Pratice Daily
+# Praticing Daily
